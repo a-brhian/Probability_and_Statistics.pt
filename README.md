@@ -1,1 +1,1 @@
-# Probabilidade e Estatistica para Tecnologia de Alimentos
+# Probabilidade e Estatística para Tecnologia de Alimentos
