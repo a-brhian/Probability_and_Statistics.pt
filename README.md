@@ -1,1 +1,1 @@
-# Probabilidade e Estatística para Tecnologia de Alimentos
+# Probabilidade e Estatística - Tecnologia de Alimentos - IFAM
