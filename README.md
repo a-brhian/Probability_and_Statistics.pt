@@ -1,1 +1,1 @@
-# Probabilidade e Estatística - Tecnologia de Alimentos - IFAM
+# Probabilidade e Estatística - Tecnologia de Alimentos - IFAM CMC
